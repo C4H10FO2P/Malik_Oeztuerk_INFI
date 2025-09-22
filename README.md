@@ -1,1 +1,0 @@
-# Malik_Oeztuerk_INFI
